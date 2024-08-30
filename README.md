@@ -33,7 +33,9 @@ Some people call me "inspired by all the badbitches and tomboys out there who co
 
 ---
 
-Remember, I'm just here to make your code look good by comparison. Follow me for the inevitable source code drop... and more mayhem to come!
+Remember, I'm just here to make your code look good by comparison.  
+
+**Follow me for the inevitable source code drop... and more mayhem to come!**
 
 
 ![mandlinsarh](https://github.com/user-attachments/assets/7cd39636-cc82-4ddb-b4be-3a5d4f100ab4)
