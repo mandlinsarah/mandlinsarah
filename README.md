@@ -1,4 +1,4 @@
-# Hi there, I'm mandlinsarah 👋
+# Hi there, I'm mandlinsarah 
 
 ### About Me
 
