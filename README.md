@@ -1,4 +1,4 @@
-# Hi there, I'm mandlinsarah 
+# Hi there, I'm mandlinsarah (man · duh · LIN · sah · ra)
 
 ### About Me
 
